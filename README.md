@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jiwwo 
 - 👀 I’m interested in math, IT and physics 
-- 🌱 I’m currently learning python
+- 🌱 I’m currently learning how to not go insane
 - 💞️ I’m looking to collaborate on -nothing- 
 - 📫 How to reach me gallgootie@gmail.com
 
